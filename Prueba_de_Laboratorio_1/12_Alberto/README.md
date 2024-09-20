@@ -1,1 +1,0 @@
- Soy Alberto Ruiz, un gusto.
